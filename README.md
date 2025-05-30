@@ -11,4 +11,7 @@
 
 ---
 
-If you want to purchase, contact me via Telegram: [@alexrony21](https://t.me/alexrony21)
+If you want to purchase, contact me via Telegram: [@thepythoncode97](https://t.me/thepythoncode97)
+
+## Note:
+This tool is designed for marketers and businesses. If you engage in any illegal activities using this tool, the author will not take any responsibility.
